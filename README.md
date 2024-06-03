@@ -1,1 +1,0 @@
-descripcion de conceptos aprendidos
